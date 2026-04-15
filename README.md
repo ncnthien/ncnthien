@@ -1,4 +1,4 @@
-## ⭐Welcome to ncnthien's Github profile⭐
+## ncnthien's Github profile
 
 ### Something about me:
 
